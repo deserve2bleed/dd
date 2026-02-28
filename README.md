@@ -5,3 +5,5 @@
 `` **c+h ALWAYS welcome** . . ! w2i as i may be off tab most of the time ! Please be patient with me if I have **DNI / DNIU- / IWEC** in my name, I can get overwhelmed easily. .
 
 I love my wife alot
+
+<img width="490" height="624" alt="image" src="https://github.com/user-attachments/assets/ed2a6225-a106-4546-985b-15353323d21e" />
